@@ -1,1 +1,1 @@
-# things-2-know-b4-friending-me-
+I get stressed very easily, almost always L8 response,,, I can get really distant due 2 stress, nd my stress can lead me 2 not responding 2 ppl (thats why i have chat off sometimes) & im srry abt that. Im not online as much as I used 2 be , im sensitive, + I cry a lot, if you see me online in pt please sit with me,,, if im upset, dont talk to me, sitting w me is the only comfort I need. If I dont talk 2 u much Im sorry, im not trying 2 b rude or anything, im not a talkative person,, I cant come up with a lot to say if that makes any sense. 
